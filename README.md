@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @xxxhol1c
-- 💞️ Wechat： MerryKurisu
 - 📫 How to reach me: virgil_ms@163.com or hol1cmin@icloud.com
 
 <!---
