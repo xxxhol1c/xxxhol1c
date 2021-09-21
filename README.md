@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xxxhol1c
+- 👋 Hi, I’m Merry Kurisu
 - 📫 How to reach me: virgil_ms@163.com or hol1cmin@icloud.com
 
 <!---
